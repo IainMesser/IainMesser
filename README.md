@@ -6,4 +6,5 @@
 3. I want to improve my skills.
 4. I am a Graphic Designer.
 ### Link to my graphic design social media page:
-[Instagram page](https://www.instagram.com/messer_designs/)
+1. [Instagram page](https://www.instagram.com/messer_designs/)
+2. [Tiktok](https://www.tiktok.com/@messer_designs) 
