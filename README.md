@@ -5,7 +5,7 @@
 2. I am new to web development.
 3. I want to improve my skills.
 4. I am a Graphic Designer.
-## Some of my design work that I do: 
+### Some of my design work that I do: 
 1. Logos
 2. Posters
 3. Branding
