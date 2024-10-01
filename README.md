@@ -12,3 +12,6 @@
 ### Links to my social media pages:
 1. [Instagram page](https://www.instagram.com/messer_designs/)
 2. [Tiktok](https://www.tiktok.com/@messer_designs) 
+### Contact me at: 
+1. Iain.Messer1@outlook.com 
+2. Iain.Messer@edu.sait.ca
